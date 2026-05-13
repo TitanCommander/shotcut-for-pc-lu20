@@ -1,4 +1,4 @@
-# 
+# Shotcut for PC | Shotcut for Windows custom Script: batch-processing & auto-cut offers the most advanced Shotcut for PC | Shotcut for Windows script, with batch-processing and
 
 
 
